@@ -1,5 +1,5 @@
 - 👋 Oi,eu me chamo jeferson lucas
-- 👀 Eu sou interessado em fazer adivocacia 
+- 👀 Eu sou interessado em fazer adivocacia ou Arquitetura
 - 🌱 Atualmente estou aprendendo a fazer jogos 
 - 💞️ No meu tempo livre eu gosto de conversar com minha namorada 
 - 📫 Voçe pode esta me encontrando] rodrisgues.silva.jeferson@escolapr.gov.br
